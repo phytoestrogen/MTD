@@ -1,4 +1,4 @@
-This is the Measurement and Target Database, you can also find this on Google Drive: https://drive.google.com/drive/u/1/folders/1IQhtCVMTSPy3pnOs_yjb9r0Svk1jT1Oi 
+This is the Measurement and Target Database, you can also this out on Google Drive: https://drive.google.com/drive/u/1/folders/1IQhtCVMTSPy3pnOs_yjb9r0Svk1jT1Oi 
 
 Hi there, you might know me as Kurin, I've decided to undertake the task of digitizing and compiling all of Oratory1990's and Resolve's measurements here!
 
