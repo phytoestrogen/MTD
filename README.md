@@ -7,4 +7,4 @@ I didn't include any tilted DF targets but you can tilt any target or measuremen
 
 Thank you for checking out this Drive, feel free to share it as you please!
 
-If you come across any issues, have any questions you'd like to ask or have measurements you'd like for me to add, consider joining my Discord server and have a chat with me (@kurincc) and the rest of the community! https://discord.gg/cubUsUbyZp
+If you come across any issues, have any questions you'd like to ask or have measurements you'd like for me to add, consider joining my Discord server and tell me about it (@kurincc) and have a chat with the rest of the community! https://discord.gg/cubUsUbyZp
